@@ -6,7 +6,7 @@
 - ⚡ Fun fact: ...wer
 22sdf
 <!---53wr
-koloseresa/koloseresa is a ✨ special ✨ repository beca132use its `README.md` (this file) appearsf on your GitHub profvvile.
+koloseresa/koloseresa is a ✨ special ✨ repository beca132useas its `README.md` (this file) appearsf on your GitHub profvvile.
 You can click the Preview link to take a look at your changes.
 --->
 ds
