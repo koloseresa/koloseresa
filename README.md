@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...12313dsf6262
-- 😄 Pronouns: ...62dgasf
+- 😄 Pronouns: ...62dgasfqwee
 - ⚡ Fun fact: ...werwer
 22sdfsssdfgn
 <!---53wrrhtsdf123
