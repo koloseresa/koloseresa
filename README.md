@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...12313dsf6262
 - 😄 Pronouns: ...62dgasfqwee
-- ⚡ Fun fact: ...werwer
+- ⚡ Fun fact: ...werwerjmjm
 22sdfsssdfgn
 <!---53wrrhtsdf123
 koloseresa/koloseresa is a ✨ special ✨ repository beca132useas its `README45.md` (this file) appearsf on your GitHub profrerevvile.
