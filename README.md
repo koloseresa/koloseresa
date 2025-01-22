@@ -1,6 +1,6 @@
 ssss3456- 👋 Hi, I’m @koloseresa465
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...sef
 - 💞️ I’m looking to collaborate on ...12313dsf6262
 - 😄 Pronouns: ...62dgasfqwee
 - ⚡ Fun fact: ...werwerjmjm554
