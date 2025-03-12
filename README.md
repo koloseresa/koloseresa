@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...sefhgm
 - 💞️ I’m looking to collaborate on ...12313dsf6262
-- 😄 Pronouns: ...62dgasfqweexcvcvxyuyuyytvxvxc
+- 😄 Pronouns: ...62dgasfqweexcvcvxyuyuyytvxvxcsdf
 - ⚡ Fun fact: ...werwerjmjm554hgnhgnhnggsdf
 22sdfsssdfgnnhretewf9+6qqqxcasdasbfg
 <!---53wrrhtsdf12352dzfsd
