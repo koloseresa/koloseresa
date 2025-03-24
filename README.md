@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...sefhgm
 - 💞️ I’m looking to collaborate on ...12313dsf6262eqwqew
 - 😄 Pronouns: ...62dgasfqweexcvcvxyuyuyytvxvxcsdf
-- ⚡ Fun fact: ...werwerjmjm554hgnhgnhnggsdfbg
+- ⚡ Fun fact: ...werwerjmjm554hgnhgnhnggsdfbgzcxxz
 22sdfsssdfgnnhretewf9+6qqqxcasdasbfgsdds
 <!---53wrrhtsdf12352dzfsd
 koloseresa/koloseresa is a ✨ special ✨ repository beca132useas its `README45.md` (this file) appeabgdfbrsf on your GitHub profrerevv5ile.
