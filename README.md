@@ -1,4 +1,4 @@
-cv,lio,cxvrtrtfddgssss3456- 👋 Hi, I’m @koloseresa46589
+fbbcv,lio,cxvrtrtfddgssss3456- 👋 Hi, I’m @koloseresa46589
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...sefhgm
 - 💞️ I’m looking to collaborate on ...12313dsf6262eqwqewjmhjmhjmjnggnv
