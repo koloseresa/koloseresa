@@ -3,7 +3,7 @@ kiihdvfbbcv,lio,cxvrtrtfddgssss3456- 👋 Hi, I’m @koloseresa46589
 - 🌱 I’m currently learning ...sefhgm
 - 💞️ I’m looking to collaborate on ...12313dsf6262eqwqewjmhjmhjmjnggnvxcvxgfsdffdsdfdsds
 - 😄 Pronouns: ...62dgasfqweexcvcvxyuyuyytvxvxcsdfsssdfgfdzcxcxzvbnbnvsddsfsdffdsreeeeehfvvvvxzvzv
-- ⚡ Fun fact: ...werwerjmjm554hgnhgnhnggsdfbgzcxxxcvvxcgrregrgjythgg
+- ⚡ Fun fact: ...werwerjmjm554hgnhgnhnggsdfbgzcxxxcvvxcgrregrgjythgggbfgfgrbebedffdf
 22sdfsssdfgnnhretewf9+6qqqxcasdasbfgsddsedsfbgfgbf
 <!---53wrrhtsdf12352dzfsd
 koloseresa/koloseresa is a ✨ special ✨ repository beca132useas its `README45.md` (this file) appeabgdfbrsf on your GitHusffsdfdsb profrerezxcczvv5ile.
