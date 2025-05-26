@@ -2,7 +2,7 @@ kiihdvfbbcv,lio,cxvrtrtfddgssss3456- 👋 Hi, I’m @koloseresa46589
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...sefhgm
 - 💞️ I’m looking to collaborate on ...12313dsf6262eqwqewjmhjmhjmjnggnvxcvxgfsdffdsdfdsds
-- 😄 Pronouns: ...62dgasfqweexcvcvxyuyuyytvxvxcsdfsssdfgfdzcxcxzvbnbnvsddsfsdffdsreeeeehfvvvvxzvzv
+- 😄 Pronouns: ...62dgasfqweexcvcvxyuyuyytvxvxcsdfsssdfgfdzcxcxzvbnbnvsddsfsdffdsreeeeehfvvvvxzvzvzxcxxx
 - ⚡ Fun fact: ...werwerjmjm554hgnhgnhnggsdfbgzcxxxcvvxcgrregrgjythgggbfgfgrbebedffdf
 22sdfsssdfgnnhretewf9+6qqqxcasdasbfgsddsedsfbgfgbfdfgdfdddd
 <!---53wrrhtsdf12352dzfsddgfdgfdfgfewdsgrefd
