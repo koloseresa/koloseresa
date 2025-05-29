@@ -1,6 +1,6 @@
 kiihdvfbbcv,lio,cxvrtrtfddgssss3456- 👋 Hi, I’m @koloseresa46589
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...sefhgm
+- 🌱 I’m currently learning ...sefhgmfvddfdfv
 - 💞️ I’m looking to collaborate on ...12313dsf6262eqwqewjmhjmhjmjnggnvxcvxgfsdffdsdfdsdswqeqwew
 - 😄 Pronouns: ...62dgasfqweexcvcvxyuyuyytvxvxcsdfsssdfgfdzcxcxzvbnbnvsddsfsdffdsreeeeehfvvvvxzvzvzxcxxx52936
 - ⚡ Fun fact: ...werwerjmjm554hgnhgnhnggsdfbgzcxxxcvvxcgrregrgjythgggbfgfgrbebedffdf
