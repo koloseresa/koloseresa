@@ -1,4 +1,4 @@
-kiihdvfbbcv,lio,cxvrtrtfddgssss3456- 👋 Hi, I’m @koloseresa46589
+qwqeqweewqkiihdvfbbcv,lio,cxvrtrtfddgssss3456- 👋 Hi, I’m @koloseresa46589
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...sefhgmfvddfdfv
 - 💞️ I’m looking to collaborate on ...12313dsf6262eqwqewjmhjmhjmjnggnvxcvxgfsdffdsdfdsdswqeqwewioliolk,mm
